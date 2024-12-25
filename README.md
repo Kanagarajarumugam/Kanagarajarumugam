@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kanagarajarumugam
 - 👀 I’m interested in Designing and programming
 - 🌱 I’m currently learning the more softskills
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on many MNC companies
 - 📫 How to reach me kanagarajkanagu000@gmail.com
 
 <!---
